@@ -1,2 +1,2 @@
 # nodeFinal
-Por fin terminar el curso de mierda
+Que pena que se acabe el curso
